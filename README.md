@@ -1,1 +1,1 @@
-👋 Hi, I’m Madryad. I make mods and little minigames with Ai as my tool.
+👋 Hi, I’m Antonia. I publish small projects, both hobby and work related on my GH
